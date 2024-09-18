@@ -3,6 +3,6 @@
   I already make game like Altar or The Ultimate Ragdol Experiment.
 
   - Founder of MythicsLab
-If you want to contact me --> obonejytb@gmail.com
+- If you want to contact me --> obonejytb@gmail.com
 
 ------------------------------------------------------------------------
