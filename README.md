@@ -1,8 +1,5 @@
-- Hi 👋 I'm Obonej
-  I am a Roblox game developer 🎮 and i make game since 2020
-  I already make game like Altar or The Ultimate Ragdol Experiment.
+16 | Grade 12 French Student -- St Aspais Fontainebleau
 
-  - Founder of MythicsLab
-- If you want to contact me --> obonejytb@gmail.com
- 
-------------------------------------------------------------------------
+UI/UX and Game Design 
+
+https://obon3jportfolio.vercel.app
